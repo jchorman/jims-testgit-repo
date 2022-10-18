@@ -1,2 +1,2 @@
 # test-cloud9-repo
-# I like eating lots of boogers and Lauren Wagenhoffer is really really fucking obnoxious and annoying.
+# My name is Jim and I'm a rock and roll monster with a bass guitar.
